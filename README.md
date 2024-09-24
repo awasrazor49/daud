@@ -1,0 +1,2 @@
+# daud
+sayang kamu
